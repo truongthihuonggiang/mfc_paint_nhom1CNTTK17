@@ -1,0 +1,1 @@
+# mfc_paint_nhom1CNTTK17
